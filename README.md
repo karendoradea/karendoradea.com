@@ -1,2 +1,0 @@
-# karendoradea.com
-portfolio
